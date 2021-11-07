@@ -1,0 +1,1 @@
+Experienced Senior Mobile Application developer with a demonstrated history of working as a software engineer. Skilled in Android Native application developer, Java, Python, Data Science(NumPy, Pandas). 
